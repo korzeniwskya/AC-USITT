@@ -10,7 +10,7 @@ Since our founding Allegheny College USITT has strives to provide as many educat
 
 ## Meet Our Board
 
-#### Noah Stape
+#### Noah Stape President
 
 
 #### Joshua Burks
