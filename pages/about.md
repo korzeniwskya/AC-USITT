@@ -10,28 +10,28 @@ Since our founding Allegheny College USITT has strives to provide as many educat
 
 ## Meet Our Board
 
-#### Noah Stape President
+### Noah Stape President
 
 
-#### Joshua Burks
+### Joshua Burks
 
 
-#### Alex Korzeniwsky
+### Alex Korzeniwsky
 
 
-#### Conor Kennedy
+### Conor Kennedy
 
 
-#### Cayla Brandon
+### Cayla Brandon
 
 
-#### Bethany Schwartz
+### Bethany Schwartz
 
 
-#### Calli Lavarnway
+### Calli Lavarnway
 
 
-#### Kaki Lynch
+### Kaki Lynch
 
 
 #### Another heading
